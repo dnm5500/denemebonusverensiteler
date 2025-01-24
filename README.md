@@ -2,7 +2,7 @@
 Deneme bonusu veren ve en çok kazandıran deneme bonusu sitelerini sizler için derledik. Yukarıdaki linkten sitelere anında erişim sağlayabilirsiniz.
 
 <a href="https://bit.ly/m/GüvenilirSite" title="Deneme Bonusu Veren Siteler">
-    <img src="https://i.ibb.co/n3FKJky/21aa7c47-127c-4dbb-a517-fb434c043179.jpg" alt="Deneme Bonusu Veren Siteler" style="max-width: 100%;">
+    <img src="https://i.imgur.com/qYch8S6.jpeg" alt="Deneme Bonusu Veren Siteler" style="max-width: 100%;">
 </a>
 
 # 🌟 Deneme Bonusu Veren Siteler 2025 - Güncel Bedava Deneme Bonusu 🌟
